@@ -1,0 +1,4 @@
+Method:- 
+for making topping first melt the butter then add onion and green chilli and cook till it become soft then add corn, sault, sugar and blackpepper powder and then mix it well.
+
+For making whiteSauce take a pan heat it and put the butter in the pan add maida in that and roast it.....then slowly add the milk and stir it...Cook till it become saucy then add salt,sugar and blackpepper...In that whiteSaude add the topping which we prepared and mix it well....For toast take a bread slice roast one side with butter put the toppings on the bread slice.....now on the topping put some onion,tomato,coriender leafs and 3/4 drops of capsico sauce.Now grill it in the oven or in the non-stick pan and serve it hot......and here's come the yummy corn toast....
